@@ -15,7 +15,7 @@
  </p>
 
 <p align="center" >
-  <em>c+h is okay, im offtabbed most of the time so whisper me if you wanna int :)</em>
+  <em>c+h is encouraged! im offtabbed most of the time so whisper me if you wanna int :)</em>
  </p>
 
 <p align="center">
