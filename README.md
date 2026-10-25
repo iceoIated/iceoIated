@@ -1,7 +1,7 @@
  </p>
 
 <h2 align="center" >
- $$\text{\color{#943442}{guh}}$$
+ $$\text{\color{#943442}{mars / kumo}}$$
 </h2>
 
 <div align="center">
