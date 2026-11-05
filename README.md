@@ -18,7 +18,7 @@
   <table>
     <tr>
       <td>
-       $$\text{\color{#943442}{mars ₒᵤ kumo}} ⋆  8𝖳𝖤𝖤𝖭 、 PH/ENG ⋆₊ <br>
+       $$\text{\color{#943442}{mars ₒᵤ kumo}}$$ ⋆  8𝖳𝖤𝖤𝖭 、 PH/ENG ⋆₊ <br>
 ㅤ  $$\text{\color{#943442}{‧₊ a𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌  ˖  𝗂𝗇𝗍/𝖼+𝗁 is enc!!}}$$ <br>
 ㅤㅤㅤㅤusually offtabbed, $$\text{\color{#943442}{w2i!}}$$ <br>
         
