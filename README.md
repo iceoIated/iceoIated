@@ -13,6 +13,8 @@
   
 </p>
 
+<p align="center"> ─ ⊹ ⊱ㅤ![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)ㅤ⊰ ⊹ ─
+
 <div align="center">
 <br align="center">  
   <table>
