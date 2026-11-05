@@ -1,4 +1,3 @@
-##### <p align="center"> ─ ⊹ ⊱ㅤ![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)ㅤ⊰ ⊹ ─
 <p align="center"> $$\text{best viewed on pc!}$$
 
 <br>
@@ -7,15 +6,17 @@
 <div align="center">
 
 <image src="https://i.postimg.cc/tTyjH9D2/ash.png"> <image src="https://i.postimg.cc/SNGVZkzz/ai.png">
-  
  <p align="left"><img src="https://i.postimg.cc/pXbxxYT4/image.png" width="220" height="auto" align="left"></img></a> <br>
   <p align="right"><img src="https://i.postimg.cc/JnnWhpVd/image.png" width="220" height="auto" align="right"></img></a> <br>
+
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)
   
 </p>
 
-<p align="center"> ─ ⊹ ⊱ㅤ![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)ㅤ⊰ ⊹ ─
-
 <div align="center">
+
 <br align="center">  
   <table>
     <tr>
