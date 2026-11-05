@@ -23,6 +23,8 @@
 ㅤㅤㅤㅤusually offtabbed, $$\text{\color{#943442}{w2i!}}$$ <br>
         
 </table>
+</tr>
+</td>
 
 <p align="center">
   <a href="https://iceolated.atabook.org/" style="text-decoration: none; outline: none;"><img src="https://i.postimg.cc/L8H6jBjB/boo.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>  
