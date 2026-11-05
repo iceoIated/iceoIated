@@ -24,8 +24,8 @@
 </table>
 
 <p align="center">
-  <a href="https://iceolated.atabook.org/" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3309.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>  
-  <a href="https://guns.lol/marsiify" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3310.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a> ⠀ 
+  <a href="https://iceolated.atabook.org/" style="text-decoration: none; outline: none;"><img src="https://i.postimg.cc/L8H6jBjB/boo.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>  
+  <a href="https://guns.lol/marsiify" style="text-decoration: none; outline: none;"><img src="https://i.postimg.cc/7Y1ZCQJt/gun.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a> ⠀ 
 <br>
 
 <div align="center">
