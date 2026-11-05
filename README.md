@@ -24,4 +24,36 @@
 ##### <p align="center"> ୧‿̩͙ ˖︵ ꕀ⠀ ![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)⠀ ꕀ ︵˖ ‿̩͙୨
 
 <br>
-<image src="https://64.media.tumblr.com/009a23822faed43c2db5c3a4bf5f71e8/b6661b3c972c5f13-4b/s100x200/bc2ca4e6fa07f980738c5da3166454c6ebbd34f5.pnj"> <image src="https://64.media.tumblr.com/b284f715eec94f2518575c3e9b3a3690/d84358e010a628bd-e0/s100x200/5f31ffbfd0c72a428c1c9dae77dfb583dd0124e0.gifv"> <image src="https://64.media.tumblr.com/a09eea4837291d55f5ba4f1cabec1248/1ba9e7f251f23ee8-48/s250x400/c787610ac85f3311a420e243a29b556a9d8b139d.pnj">
+
+
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=(*ᴗ͈ˬᴗ͈)+:&base=676767)
+
+<image src="https://i.postimg.cc/tTyjH9D2/ash.png"> <image src="https://i.postimg.cc/SNGVZkzz/ai.png">
+  
+ <p align="left"><img src="https://i.postimg.cc/SNGVZkz2/log.png" width="220" height="auto" align="left"></img></a> <br>
+  <p align="right"><img src="https://i.postimg.cc/JnnWhpVd/image.png" width="220" height="auto" align="right"></img></a> <br>
+  
+</p>
+
+<div align="center">
+<br>  
+  <table>
+    <tr>
+      <td>
+        $$\text{\color{#943442}{mars ₒᵤ  kumo}}$$ ✦  7𝖳𝖤𝖤𝖭 、 𝗂𝗌𝖿𝗉 𑣲<br>
+        𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌  ˖  𝗂𝗇𝗍/𝖼+𝗁 𝖿𝗋𝖾𝖾𝗅𝗒! ۶ৎ
+        
+</table>
+
+<br>
+
+<p align="center">
+  <a href="https://vixxie.atabook.org/" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3309.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a>   
+  <a href="https://tuxxie.carrd.co/" style="text-decoration: none; outline: none;"><img src="https://file.garden/amd45evg90hz5PtR/IMG_3310.png" width="130" alt="⸜(｡˃ ᵕ ˂ )⸝♡" style="border: none; outline: none;"></a> ⠀ 
+<br>
+
+<div align="center">
+
+<image src="https://i.postimg.cc/tTyjH9D2/ash.png"> <image src="https://i.postimg.cc/SNGVZkzz/ai.png">
