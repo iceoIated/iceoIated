@@ -38,12 +38,13 @@
 </p>
 
 <div align="center">
-<br>  
+<br align="center">  
   <table>
     <tr>
       <td>
-        $$\text{\color{#943442}{mars ₒᵤ  kumo}}$$ ✦  7𝖳𝖤𝖤𝖭 、 𝗂𝗌𝖿𝗉 𑣲<br>
-        𝖺𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌  ˖  𝗂𝗇𝗍/𝖼+𝗁 𝖿𝗋𝖾𝖾𝗅𝗒! ۶ৎ
+       $$\text{\color{#943442}{mars ₒᵤ kumo}}$$ ⋆  8𝖳𝖤𝖤𝖭 、 PH/ENG 𑣲 <br>
+       ㅤ $$\text{\color{#943442}{$$a𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌  ˖  𝗂𝗇𝗍/𝖼+𝗁 is enc!!}}<br>
+       ㅤㅤㅤ   usually offtabbed, w2i!<br>
         
 </table>
 
