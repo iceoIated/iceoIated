@@ -1,4 +1,5 @@
 ##### <p align="center"> ─ ⊹ ⊱ㅤ![](https://komarev.com/ghpvc/?username=kiII-r&color=943442&style=flat&label=phantoms&abbreviated=true)ㅤ⊰ ⊹ ─
+<p align="center"> $$\text{best viewed on pc!}$$
 
 <br>
 
@@ -17,7 +18,7 @@
   <table>
     <tr>
       <td>
-       $$\text{\color{#943442}{mars ₒᵤ kumo}}$$ ⋆  8𝖳𝖤𝖤𝖭 、 PH/ENG ⋆₊ <br>
+       $$\text{\color{#943442}{mars ₒᵤ kumo}} ⋆  8𝖳𝖤𝖤𝖭 、 PH/ENG ⋆₊ <br>
 ㅤ  $$\text{\color{#943442}{‧₊ a𝗇𝗒 𝗉𝗋𝗈𝗇𝗈𝗎𝗇𝗌  ˖  𝗂𝗇𝗍/𝖼+𝗁 is enc!!}}$$ <br>
 ㅤㅤㅤㅤusually offtabbed, $$\text{\color{#943442}{w2i!}}$$ <br>
         
