@@ -32,3 +32,5 @@
 <div align="center">
 
  <p align="center"><img src="https://i.postimg.cc/MKYtsqjc/tay.png" width="220" height="auto" align="center"><img src="https://i.postimg.cc/SNGVZkzJ/ty.png" width="220" height="auto" align="center"></img></a> <br>
+<img width="220" height="auto" align="center" alt="image" src="https://i.postimg.cc/MKYtsqjc/tay.png" />
+<img width="220" height="auto" align="center" alt="image" src="https://i.postimg.cc/SNGVZkzJ/ty.png" />
